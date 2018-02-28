@@ -79,3 +79,8 @@ https://www.facebook.com/Timnonaturalhistorygaisya/posts/1811715915794464
 無量　　　　　　　10^68
 大數　　　　　　　10^72
 ```
+
+### 為什麼要叫做「精靈寶可夢」？兼談法律、在地化和全球定位
+
+http://www.u-acg.com/archives/7837
+![](http://www.u-acg.com/wp-content/uploads/2016/02/POKEMON.jpg)
