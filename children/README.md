@@ -8,6 +8,8 @@
 - [日本時代歌謠..[初音ミク]臺灣周遊唱歌(中文翻譯)](#%E6%97%A5%E6%9C%AC%E6%99%82%E4%BB%A3%E6%AD%8C%E8%AC%A0%E5%88%9D%E9%9F%B3%E3%83%9F%E3%82%AF%E8%87%BA%E7%81%A3%E5%91%A8%E9%81%8A%E5%94%B1%E6%AD%8C%E4%B8%AD%E6%96%87%E7%BF%BB%E8%AD%AF)
 - [吹過島嶼的歌 《聽日治時期島嶼在唱歌》第一集](#%E5%90%B9%E9%81%8E%E5%B3%B6%E5%B6%BC%E7%9A%84%E6%AD%8C-%E8%81%BD%E6%97%A5%E6%B2%BB%E6%99%82%E6%9C%9F%E5%B3%B6%E5%B6%BC%E5%9C%A8%E5%94%B1%E6%AD%8C%E7%AC%AC%E4%B8%80%E9%9B%86)
 - [「兆」「Billion」之上還有什麼呢？](#%E5%85%86billion%E4%B9%8B%E4%B8%8A%E9%82%84%E6%9C%89%E4%BB%80%E9%BA%BC%E5%91%A2)
+- [換個角度看台灣的新思維](#%E6%8F%9B%E5%80%8B%E8%A7%92%E5%BA%A6%E7%9C%8B%E5%8F%B0%E7%81%A3%E7%9A%84%E6%96%B0%E6%80%9D%E7%B6%AD)
+- [為什麼要叫做「精靈寶可夢」？兼談法律、在地化和全球定位](#%E7%82%BA%E4%BB%80%E9%BA%BC%E8%A6%81%E5%8F%AB%E5%81%9A%E7%B2%BE%E9%9D%88%E5%AF%B6%E5%8F%AF%E5%A4%A2%E5%85%BC%E8%AB%87%E6%B3%95%E5%BE%8B%E5%9C%A8%E5%9C%B0%E5%8C%96%E5%92%8C%E5%85%A8%E7%90%83%E5%AE%9A%E4%BD%8D)
 
 <!-- END doctoc generated TOC please keep comment here to allow auto update -->
 
@@ -79,6 +81,26 @@ https://www.facebook.com/Timnonaturalhistorygaisya/posts/1811715915794464
 無量　　　　　　　10^68
 大數　　　　　　　10^72
 ```
+
+
+### 換個角度看台灣的新思維
+
+http://www.taiwantt.org.tw/tw/index.php?option=com_content&task=view&id=5474
+
+![](http://www.taiwantt.org.tw/tw/images/pictures/2015/08/20150813-02L.jpg)
+
+![](http://www.taiwantt.org.tw/tw/images/pictures/2015/08/20150813-01L.jpg)
+
+![](http://www.taiwantt.org.tw/tw/images/pictures/2015/08/20150813-07L.jpg)
+
+![](http://www.taiwantt.org.tw/tw/images/pictures/2015/08/20150813-06L.jpg)
+
+![](http://www.taiwantt.org.tw/tw/images/pictures/2015/08/20150813-04L.jpg)
+
+![](http://www.taiwantt.org.tw/tw/images/pictures/2015/08/20150813-03L.jpg)
+
+![](http://www.taiwantt.org.tw/tw/images/pictures/2015/08/20150813-05L.jpg)
+
 
 ### 為什麼要叫做「精靈寶可夢」？兼談法律、在地化和全球定位
 
