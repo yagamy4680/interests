@@ -106,3 +106,11 @@ http://www.taiwantt.org.tw/tw/index.php?option=com_content&task=view&id=5474
 
 http://www.u-acg.com/archives/7837
 ![](http://www.u-acg.com/wp-content/uploads/2016/02/POKEMON.jpg)
+
+
+### Plot modern addresses on Earth 240M years ago (dinosaurpictures.org)
+
+- http://dinosaurpictures.org/ancient-earth#240
+- https://news.ycombinator.com/item?id=17286770
+ 
+
