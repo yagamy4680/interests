@@ -116,3 +116,11 @@ http://www.u-acg.com/archives/7837
 ### 讓樹木聊天的地底網絡
 
 https://www.facebook.com/bbctrad/videos/2200193609997297/
+
+
+### 推薦的動畫 20180727
+
+- 工作細胞 https://ani.gamer.com.tw/animeVideo.php?sn=10210
+- 進擊的巨人 第一季 濃縮成電影版  https://ani.gamer.com.tw/animeVideo.php?sn=10087
+- 進擊的巨人 第二季 濃縮成電影版  https://ani.gamer.com.tw/animeVideo.php?sn=10088
+- 進擊的巨人 第三季 TV 版 https://ani.gamer.com.tw/animeVideo.php?sn=10484
