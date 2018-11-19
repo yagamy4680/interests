@@ -178,3 +178,9 @@ https://www.facebook.com/bbctrad/videos/2200193609997297/
 ## 用電影說印度 - 三部好片解開印度迷思
 
 https://www.youtube.com/watch?v=eJC7UJCIqrg
+
+
+## 皮卡丘
+
+- POKÉMON名偵探皮卡丘 真人版電影預告 (https://www.youtube.com/watch?v=Em6EuWdIbmc)
+- 皮卡丘開口說台語了！！ (https://www.youtube.com/watch?v=DkZrKoA2LzE)
